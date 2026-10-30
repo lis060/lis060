@@ -1,4 +1,4 @@
-#MYSELF
+# MYSELF
 **My name is Listowell. I am a person with a story to tell, experiences to share, and dreams I hope to achieve. My life is a journey of discovering who I am, understanding what matters to me, and deciding the kind of person I want to become.**
 
 As I move through life, I am learning more about my strengths, my interests, and the areas where I can improve. Every experience gives me an opportunity to learn something about myself and the world around me. I may not have all the answers, but I can keep asking questions, exploring possibilities, and taking steps forward.
